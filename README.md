@@ -1,1 +1,1 @@
-https://badge.mediaplus.ma/binary/hoakoumi√
+https://badge.mediaplus.ma/binary/hoakoumi
